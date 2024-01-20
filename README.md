@@ -15,7 +15,7 @@ My previous career as a Nurse Practitioner and Registered Nurse 👩‍⚕️ wh
 I worked on a multidisciplinary team 🤝 and honed excellent communication and collaboration skills.
 
 ### 📧 How to reach me 
-[LinkedIn:](https://www.linkedin.com/in/maddywoodrum/) or Email: madzno12@gmail.com
+[LinkedIn](https://www.linkedin.com/in/maddywoodrum/) or Email: madzno12@gmail.com
 
 ### ⚡ Fun fact 
 I'm a foodie and in Kindergarten I wrote that my dream job was to be a sushi chef 🍣. 
