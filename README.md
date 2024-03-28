@@ -1,6 +1,6 @@
 # Hi there 👋, I'm Maddy! 
 
-I'm a Software Engineer based in New York, NY 🏙 currently on the Backend Engineering team at myfitnesspal. I love to learn 👩‍💻, especially about new backend technologies and system architecture.
+I'm a Software Engineer based in New York, NY 🏙 currently on the Backend Engineering team at myfitnesspal. I love to learn 👩‍💻, especially about new backend technologies and system architecture.I'm a self-starter who contributes to a team by taking on high-priority tasks and breaking down ambiguous real-world problems. 
 
 ### 🚀 Twine Real-Time 
 
